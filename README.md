@@ -1,1 +1,1 @@
-![image](https://www.google.com/imgres?q=tyler%2C%20the%&imgurl=https%3A%2F%2Fcontextojornalismo.com%2Fwp-content%2Fuploads%2F2024%2F06%2Fimage-23.png%3Fw%3D719&imgrefurl=https%3A%2F%2Fcontextojornalismo.com%2F2024%2F06%2F06%2Fos-cinco-anos-de-igor-de-tyler-the-creator%2F&docid=d30L2xGts3_fdM&tbnid=U-y7DNp9Am0x8M&vet=12ahUKEwiQoJiXxsuJAxXMr5UCHZEcHq4QM3oECFUQAA..i&w=719&h=703&hcb=2&ved=2ahUKEwiQoJiXxsuJAxXMr5UCHZEcHq4QM3oECFUQAA)
+![image](![image](https://github.com/user-attachments/assets/47959b4e-79ba-4146-99be-8a8ddebbd71b)
